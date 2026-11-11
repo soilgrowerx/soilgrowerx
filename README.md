@@ -22,7 +22,6 @@ Today I bring that same systems mindset to the land:
 Currently operating in Central Texas and relocating to southern Oregon in summer 2027 to focus on Pacific Northwest forest management, watershed stewardship, and long-term wildland resilience.
 
 ### Credentials & Affiliations
-* **ISA Certified Arborist:** TX-362025A (ISA Texas Chapter, Oak Wilt Qualified)
-* **Texas Department of Agriculture:** Commercial Pesticide Applicator
+* **ISA Certified Arborist:** TX-362025A (ISA Texas Chapter)
 * **Education:** MNR Candidate, Forests and Climate Change (Oregon State University) | B.S. Environmental Science | A.A.S. Computer Information Systems
 * **Practice:** [soilgrower.com](https://soilgrower.com)
